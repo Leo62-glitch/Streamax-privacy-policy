@@ -1,0 +1,1 @@
+# Streamax-privacy-policy
